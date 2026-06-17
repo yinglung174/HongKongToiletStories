@@ -40,4 +40,4 @@ Google Play 服務（如排行榜、成就、付款）
 
 8. 聯絡我們
 如你對本私隱權政策有任何問題，請電郵至：
-your-support-email@example.com
+wearechusi@gmail.com
